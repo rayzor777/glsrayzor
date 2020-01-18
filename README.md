@@ -1,0 +1,2 @@
+# glsrayzor
+Hanya penikmat game
